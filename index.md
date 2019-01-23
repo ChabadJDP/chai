@@ -1,4 +1,3 @@
-# Chabad Jardim das Perdizes
 ## Contribuição mensal - Projeto Chai
 
 Contribua para que o Beit Chabad Jardim das Perdizes continue oferecendo uma experiência judaica completa com Cabalat Shabat, Shacharit, Mincha e Arvit de Shabat, Shiurim Semanal, Chaguim e todas as atividades abertas a todos Yehudim.
