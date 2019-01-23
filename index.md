@@ -27,7 +27,7 @@ Escolha na tabela abaixo o valor desejado de doação mensal. Voce será direcio
 
 [R$818,00](https://cieloecommerce.cielo.com.br/transactionalvnext/order/buynow/6d7436c9-a749-44a7-b635-f5f4eb435d24)
 
-**Valor Maior Entre em contato com o rabino**
+[Valor Maior Entre em contato com o rabino](mailto://shmulyperman@gmail.com)
 
 
 ##### O Chabad Jardim das Perdizes e a nossa comunidade agradecem a colaboração,
